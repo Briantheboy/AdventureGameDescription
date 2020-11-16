@@ -8,6 +8,5 @@ Character Bio: Robbin’ Robin (real name: Robin Roberto Robinson) is a horrible
 Items: Robin at the beginning of the game realizes that he left all his tools/items at home (except for a ladder which he uses to get to the top of the museum), looks like things might be harder than he thought.
 
 
-Credits: 
 
 
