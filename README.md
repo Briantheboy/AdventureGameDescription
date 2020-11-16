@@ -10,7 +10,4 @@ Items: Robin at the beginning of the game realizes that he left all his tools/it
 
 Credits: 
 
-CREATED BY BRIAN KELLEY
-
-PLAY TESTED BY MATT WOZNIAK
 
